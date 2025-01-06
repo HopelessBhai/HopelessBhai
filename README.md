@@ -1,6 +1,6 @@
 Yo, what's up? 
 ML/AI and economics nerd.
-Try to find a piece of mind in the lines of code.
+Trying to find a piece of mind in the lines of code.
 
 Now f*ck off.
 
